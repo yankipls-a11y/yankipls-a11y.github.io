@@ -1,1 +1,0 @@
-# yankipls-a11y.github.io
